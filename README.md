@@ -27,7 +27,7 @@
 
 - ⚡ Fun fact **I am studying in Class XI**
 
-[![MasterHead](https://github.com/SadharanLadkaIsBack/Android-Debug-Bridge/assets/133076612/88f2f11d-be3d-46a9-8748-57b532baa893)]()
+[![MasterHead](https://github.com/SadharanLadkaIsBack/Android-Debug-Bridge/assets/133076612/de25b312-ce04-4e10-99da-72b78c420400)]()
 <br/>
 
 <h1 align="center">
