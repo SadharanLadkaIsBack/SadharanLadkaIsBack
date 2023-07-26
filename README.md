@@ -66,3 +66,4 @@
 
 ### 😂 Meme::
 <img src="https://preview.redd.it/f7ibqp1dmiv51.gif?width=640&crop=smart&format=png8&s=6cd99df5e58c976bc115bd080a1e6afdbd0d71e7" width="512px"/>
+<img src="https://i.redd.it/mp69f4yol9eb1.jpg" width="512px">
