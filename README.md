@@ -1,4 +1,4 @@
-![carbon1](https://github.com/SadharanLadkaIsBack/SadharanLadkaIsBack/assets/133076612/a4a37cc5-0ba8-4891-8413-571a80028c06)
+![carbon1](https://github.com/SadharanLadkaIsBack/SadharanLadkaIsBack/assets/133076612/4137e40b-f52f-458a-9e87-73013312b174)
 
 
 
