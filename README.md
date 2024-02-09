@@ -7,6 +7,6 @@
 
 ![carbon69](https://github.com/SadharanLadkaIsBack/SadharanLadkaIsBack/assets/133076612/1d983d17-ccbb-4af9-bcd7-7b5bb28a95b0)
 
-![readmebox](https://github.com/SadharanLadkaIsBack/SadharanLadkaIsBack/assets/133076612/31840da7-1221-497c-8a14-e095cf7580a7)
-
 ![carbon](https://github.com/SadharanLadkaIsBack/SadharanLadkaIsBack/assets/133076612/1fedcaba-3450-4b7b-8dd3-f046a28885e5)
+
+![readmebox](https://github.com/SadharanLadkaIsBack/SadharanLadkaIsBack/assets/133076612/31840da7-1221-497c-8a14-e095cf7580a7)
